@@ -51,4 +51,5 @@
 
 ## 気になる
 
-https://twitter.com/zimkalee/status/1245325813907484672
+* https://twitter.com/zimkalee/status/1245325813907484672
+* https://www.startuplist.jp/alliance_posts/6
